@@ -1,0 +1,1 @@
+# aoimasu.github.io
